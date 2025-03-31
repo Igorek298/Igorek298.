@@ -1,1 +1,1 @@
-# Igorek298.
+# Igorek298.Mój pierwszy wpis
